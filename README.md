@@ -10,9 +10,9 @@ Are you searching for the **best online casino in Australia** that delivers exce
 
 | Rank | Casino | Welcome Bonus | Standout Feature | Player Rating |
 |------|--------|---------------|------------------|---------------|
-| #1 | [Quickwin](https://auzino.net/real-money-sites/quickwin) | AU$4000 + 200 Free Spins | Best Overall Experience | ⭐⭐⭐⭐⭐ (97.5%) |
-| #2 | [Vegasino](https://auzino.net/real-money-sites/vegasino) | AU$750 + 200 Free Spins | 4000+ Game Selection | ⭐⭐⭐⭐⭐ (96.8%) |
-| #3 | [Spinsy](https://auzino.net/real-money-sites/spinsy) | AU$500 + 200 Free Spins | Fastest Withdrawals | ⭐⭐⭐⭐⭐ (96.5%) |
+| #1 | [Quickwin](https://auzino.net/real-money-sites/quickwin) | AU$4500 + 150 Free Spins | Best Overall Online Casino | ⭐⭐⭐⭐⭐ (97.5%) |
+| #2 | [Vegasino](https://auzino.net/real-money-sites/vegasino) | AU$4000 + 150 Free Spins | 4000+ Game Selection | ⭐⭐⭐⭐⭐ (96.8%) |
+| #3 | [Spinsy](https://auzino.net/real-money-sites/spinsy) | AU$4000 + 150 Free Spins | Fastest Withdrawals | ⭐⭐⭐⭐⭐ (96.5%) |
 | #4 | [Goldspin](https://auzino.net/real-money-sites/goldspin) | AU$2500 + 100 Free Spins | Top VIP Program | ⭐⭐⭐⭐⭐ (95.8%) |
 | #5 | [Jackbit](https://auzino.net/real-money-sites/jackbit) | 5 BTC + 200 Free Spins | Best Crypto Casino | ⭐⭐⭐⭐⭐ (94.7%) |
 
@@ -110,7 +110,7 @@ Vegasino has quickly established itself as one of the most promising **gambling 
 
 ### Welcome Bonus & Key Features
 
-New players can claim a 100% match up to AU$750 plus 200 **free spins** with reasonable wagering requirements compared to other **casino sites**. **Casinos offer** different bonus structures, but Vegasino's stands out for its fair terms.
+New players can claim a 100% match up to AU$4000 plus 150 **free spins** with reasonable wagering requirements compared to other **casino sites**. **Casinos offer** different bonus structures, but Vegasino's stands out for its fair terms.
 
 #### What Makes Vegasino Shine:
 
